@@ -15,3 +15,5 @@ weeellll. . . .  if u're interested in anything else, i can tell you anything wh
 
 <p align="center">
 <img src= "https://pbs.twimg.com/media/G5an47NXIAEpc0x?format=png&name=900x900 ">
+
+# CREDIT ARTS: @ binej_yeah on X (aka twitter)
